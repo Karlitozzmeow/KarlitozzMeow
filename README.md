@@ -1,4 +1,5 @@
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/c6f3962b-797d-4974-98f7-c32210eb3ff1" /> WIPP
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/14649de0-9ef3-4bab-badf-3b239442f94f" />
+ WIPP
 
 
 
