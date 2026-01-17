@@ -1,9 +1,5 @@
-.          .         ₊˚⊹ ⚰   ..   uhh stinky guy   . 🔑 ..𓂃 ࣪ ִֶָ་༘࿐          .   
-                      .˚◞♡     ⤷  karlitozzzbeautiful ♡⸝⸝  ::
-                       ‧˚꒰ ˚. 𝐈'm a 𝐌𝐈𝐍𝐎𝐑 :: 26/11/11 ::  ⸝⸝.ᐟ⋆
-         ⊹✦    ..  𝐍on-𝐁inary :: 𝐓ransgender :: 𝐓hey/𝐇e˚◞♡
-.. ⊹ ࣪ ˖    𝐅andoms: 8:11 :: 𝐇otline 𝐌iami :: 𝐄ddsworld :: 𝐆&𝐁 .ᐟ
- ╰┈➤ 𝐋aw 𝐎f 𝐓alos :: 𝐌adness 𝐂ombat :: 𝐌ax 𝐆ambino ⋆.˚
+wip!! <img width="691" height="693" alt="image" src="https://github.com/user-attachments/assets/c22fcc82-4c50-415f-9c8e-ff7d431c6f01" />
+
 
 <!--
 **Karlitozzmeow/KarlitozzMeow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
