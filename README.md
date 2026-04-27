@@ -1,7 +1,10 @@
+idk what 2 put there,,,,,
 
- 1 year w this as a wip alr
+i like msi, and one, electroforez n other bands (goth/industrial/rock)
+my main fandoms r 8:11, hotline miami, detective comics n others i forgot 😢😢😢
 
-<img width="500" height="263" alt="image" src="https://github.com/user-attachments/assets/54c9a14c-2aee-4ef5-852a-4cfff65a855b" />
+
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/f38732ad-cdb8-4f40-ad37-b3ad29eebbcd" />
 
 
 
