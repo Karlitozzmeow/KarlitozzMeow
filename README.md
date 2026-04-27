@@ -1,7 +1,10 @@
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/0ed3d099-a6b6-46c0-b6e7-ea1be7e9e23b" />
-
 
  1 year w this as a wip alr
+
+<img width="500" height="263" alt="image" src="https://github.com/user-attachments/assets/54c9a14c-2aee-4ef5-852a-4cfff65a855b" />
+
+
+
 
 
 
