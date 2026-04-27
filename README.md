@@ -2,9 +2,10 @@ idk what 2 put there,,,,,
 
 i like msi, and one, electroforez n other bands (goth/industrial/rock)
 my main fandoms r 8:11, hotline miami, detective comics n others i forgot 😢😢😢
+i'm rlly sorry if my english is kinda rusty, its not my first lenguage 🙁🙁🙁🙁
 
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/d7ba2d54-520a-49e7-8d3a-627a390534a3" />
 
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/f38732ad-cdb8-4f40-ad37-b3ad29eebbcd" />
 
 
 
