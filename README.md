@@ -5,13 +5,12 @@ i'm lazy 2 put smth 🤔🤔🤔
 
 
 Now if you're a man
-You can be safe from them
-They're after your women
-They don't want no man
-But that don't mean
-That it's safe to walk the streets
-'Cause the gay-boy vampires
-Are coming next week
+you can be safe from them
+they're after your women
+they don't want no man, but that don't mean
+that it's safe to walk the streets
+'cause the gay-boy vampires
+are coming next week
 
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/ada7c6c1-4962-43ce-8248-5257aac1337b" />
 
