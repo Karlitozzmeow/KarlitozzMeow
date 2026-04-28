@@ -1,3 +1,9 @@
+i'm lazy 2 put smth 🤔🤔🤔
+
+
+
+
+
 Now if you're a man
 You can be safe from them
 They're after your women
