@@ -1,12 +1,9 @@
-i'm lazy 2 put smth 🤔🤔🤔
+working on my strawpage,...,🥺
 
 
 
+<img width="655" height="479" alt="image" src="https://github.com/user-attachments/assets/ad61ff6d-6527-46d1-8f62-cb8b2077100a" />
 
-
-lesbian vampyres from outer spaceeeeeeee
-
-<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/ada7c6c1-4962-43ce-8248-5257aac1337b" />
 
 
 
