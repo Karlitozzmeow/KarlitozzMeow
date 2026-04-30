@@ -2,7 +2,7 @@ working on my strawpage,...,🥺
 
 
 
-<img width="655" height="479" alt="image" src="https://github.com/user-attachments/assets/ad61ff6d-6527-46d1-8f62-cb8b2077100a" />
+<img width="400" height="450" alt="image" src="https://github.com/user-attachments/assets/ad61ff6d-6527-46d1-8f62-cb8b2077100a" />
 
 
 
