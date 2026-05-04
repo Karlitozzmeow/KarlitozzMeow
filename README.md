@@ -1,6 +1,5 @@
-working on a ugly strawpage
-
-
+Oh, h-h-h-hey! i'm just a little neko boy trying to make friends uwu nya! 
+pls be nice to me! >//////<
 
 
 <img width="736" height="589" alt="image" src="https://github.com/user-attachments/assets/c89bf562-006f-4167-ae71-95883c4149ed" />
