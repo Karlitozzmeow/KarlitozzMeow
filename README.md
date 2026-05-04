@@ -3,7 +3,7 @@ working on a ugly strawpage
 
 
 
-
+<img width="736" height="589" alt="image" src="https://github.com/user-attachments/assets/c89bf562-006f-4167-ae71-95883c4149ed" />
 
 
 
