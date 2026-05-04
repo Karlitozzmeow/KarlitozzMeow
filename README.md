@@ -1,9 +1,4 @@
-Strawpage also a wip! 
-
-
-
-<img width="535" height="535" alt="image" src="https://github.com/user-attachments/assets/cae87d50-7fa2-455d-a22f-45eb82b6c11e" />
-
+working on a ugly strawpage
 
 
 
