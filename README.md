@@ -1,4 +1,4 @@
-<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/85d06c45-b011-4413-9188-f915fff3513a" />
+<img width="1907" height="3000" alt="Image" src="https://github.com/user-attachments/assets/5bdf3a15-717f-44dd-9817-a96b9564a1f2" />
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Karlitozz. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀working on my strawpage
