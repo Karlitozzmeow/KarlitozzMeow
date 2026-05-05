@@ -1,7 +1,7 @@
 <img width="1907" height="3000" alt="Image" src="https://github.com/user-attachments/assets/5bdf3a15-717f-44dd-9817-a96b9564a1f2" />
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𝓦e... are made of 𝓶ultiple 𝓢ouls.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𝓘 am 𝓹rotecting 𝔂ou. And 𝓰uiding you, Have you 𝓯orgotten your 𝓠uest? i can 𝓻emind you.
 
 
 
