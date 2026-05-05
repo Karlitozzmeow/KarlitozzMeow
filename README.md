@@ -1,10 +1,7 @@
-Oh, h-h-h-hey! i'm just a little neko boy trying to make friends uwu nya! 
-pls be nice to me! >//////<⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀strawpage on wip
+<img width="1000" height="1000" alt="Image" src="https://github.com/user-attachments/assets/85d06c45-b011-4413-9188-f915fff3513a" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-
-⠀⠀⠀⠀⠀⠀⠀⠀<img width="800" height="800" alt="Image" src="https://github.com/user-attachments/assets/9d755952-01b9-4c98-ba0a-2b6615c77ac9" />
-
-
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Karlitozz. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀working on my strawpage
 
 
 
