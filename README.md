@@ -1,7 +1,12 @@
-<img width="1907" height="3000" alt="Image" src="https://github.com/user-attachments/assets/5bdf3a15-717f-44dd-9817-a96b9564a1f2" />
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀amor soy una polla
+
+
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="497" height="497" alt="Image" src="https://github.com/user-attachments/assets/f5cc3207-9e3d-4ada-9629-111d511fedf2" />
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀𝓘 am 𝓹rotecting 𝔂ou. And 𝓰uiding you, Have you 𝓯orgotten your 𝓠uest? i can 𝓻emind you.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 
 
