@@ -1,4 +1,4 @@
-  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ${\textsf{\color{#750800} Sweety, look! i'm a polla  }}$
+  ⠀ ⠀ ⠀ ⠀https://venezuelaneedshelp.straw.page/ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ${\textsf{\color{#750800} Sweety, look! i'm a polla  }}$
 
 
 ${\textsf{\color{#ffb0d9} DNI LIST }}$ : https://karlitozzdnilist.straw.page/
